@@ -1,0 +1,1 @@
+# jedno_rozmerne_pole
